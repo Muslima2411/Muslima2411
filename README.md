@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Muslima
+- 👀 I’m interested in mobile application development
+- 🌱 I’m currently learning machine learning 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me:  https://t.me/muslimanurullayeva
+- ⚡ Fun fact: i was the winner of the Olympiad held in PDP University

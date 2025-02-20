@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning machine learning 
 - 💞️ I’m looking to collaborate on mobile application projects and startups
 - 📫 How to reach me:  https://t.me/muslimanurullayeva
-- ⚡ Fun fact: i was the winner of the Olympiad held in PDP University
+- ⚡ Fun fact: I was the winner of the Olympiad held in PDP University

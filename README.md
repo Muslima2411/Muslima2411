@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on mobile application projects and startups
 - 📫 How to reach me:
     - https://t.me/muslimanurullayeva
-    - www.linkedin.com/in/muslima-nurullayeva-675aab299
+    - www.linkedin.com/in/muslima-nurullayeva
 - ⚡ Fun fact: I was the winner of the Olympiad held in PDP University
